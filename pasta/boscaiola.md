@@ -12,4 +12,6 @@
 
 ## Instructions
 
-TODO: these are missing
+- bring water 
+- boil for 9 min
+- add pancetta, peas, mushrooms, onions
